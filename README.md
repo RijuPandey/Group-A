@@ -23,3 +23,12 @@ I'm currently studying Computer Science and Engineering with specialization in C
   - UI/UX designing.
   - Data Structure and algorithm (with JAVA as my prefered language.)
 - Not being limited to a specific field of my interest, i'm also willing to learn new technologies and ideas. So that i can further improve my skill-set.
+
+## My future plans :-
+
+- To further explore in the field of Cyber Security and Developement.
+
+
+- I'm also ready and excited to collaborate and contribute via online platforms such as GitHub.
+
+## Thank you for visiting !
