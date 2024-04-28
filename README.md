@@ -10,7 +10,7 @@
 
 I am anju kumari.I currently persuing my b.tech in HALDIA INSTITUTE OF TECHNOLOGY IN ELECTRONICS AND COMMUNICATION ENGINEERING.
 
-I am from bihar .I done my  10th and 12thtgfgfnhnfhfh
+I am from bihar .I done my  10th and 12thtgfgfnhnfythhghgjgjhjhyjghgy
 video editing
 
 **SKILL:**
