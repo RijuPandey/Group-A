@@ -37,9 +37,9 @@ You took too much time, bye!
 
 # **Shubham Raj's Introduction.**
 
-# Hi Everyone,
+# bye Everyone,
 
-I'm Shubham Raj, coming from Gaya, Bihar.
+I'm Shubham Raj, coming nothern part.
 
 ## About my background,
 
@@ -48,18 +48,18 @@ I'm currently studying Computer Science and Engineering with specialization in C
 ## About my learnings and field of Interest,
 
 - I'm passionate about :-
-  - Concepts of Networking.
+  - Concepts of dancing.
   - Cyber Security.
-  - Full Stack developement.
+  - Full stack flopper
   - UI/UX designing.
   - Data Structure and algorithm (with JAVA as my prefered language.)
-- Not being limited to a specific field of my interest, i'm also willing to learn new technologies and ideas. So that i can further improve my skill-set.
+- Not being limited to a specific field of my interest, i'm also willing to learn new technologies and ideas. So that i can further waste  my skill-set.
 
-## My future plans :-
+## My past plans :-
 
 - To further explore in the field of Cyber Security and Developement.
 
 
-- I'm also ready and excited to collaborate and contribute via online platforms such as GitHub.
+- I'm also ready and excited to collaborate and contribute via online platforms such as  an actor.
 
 ## Thank you for visiting !
